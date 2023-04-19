@@ -45,3 +45,4 @@ Esta cultura es interesante porque estan pasando por un momento de rechazo de la
 
 
 [Fuente de información](https://repository.ubn.ru.nl/bitstream/handle/2066/145805/mmubn000001_182717151.pdf)
+[Fuente de información](https://www.ohchr.org/sites/default/files/Documents/Issues/Racism/RES_43_1/NGOsAndOthers/cristosal.pdf)

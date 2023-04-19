@@ -51,8 +51,7 @@ Esta cultura es interesante porque estan pasando por un momento de rechazo de la
 ## Bibligrafia
 
 Lopez, Naama. (2021).  
- 
- 
+
 El primer garífuna hondureño en investigar la autonomía territorial y educativa en la comunidad garífuna de Vallecito [fotografía]. Fotografía de portada: Sandra Fiallos Ruiz. https://contracorriente.red/2021/07/06/el-primer-garifuna-hondureno-en-investigar-la-autonomia-territorial-y-educativa-en-la-comunidad-garifuna-de-vallecito/
 
 Rivas, R. D. (1994). Los antiguos dueños de la tierra: pueblos indígenas y garífuna de Honduras (Doctoral dissertation, [Sl: sn]). (Cap5)

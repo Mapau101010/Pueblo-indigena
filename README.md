@@ -38,7 +38,7 @@ La mayoría de sus comunidades están pasando un fuerte proceso de desculturaci�
 Esta cultura es interesante porque estan pasando por un momento de rechazo de las figuras de poder expresada por obligarlos a moverse talando sus bosques con fines turisticos, sin embargo usualmente los contratos de construcción de los terrenos son de empresas trasnacionales.
 
 
-![Imagen local](img/garifunas2.jpeg)
+![Imagen local](garifunas2.jpeg)
 
 
 ![Imagen remota](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ8CRHS9JgDKp7kndEVmeaGqJMJLMsmMshQvw&usqp=CAU)

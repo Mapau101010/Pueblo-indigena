@@ -47,3 +47,14 @@ Esta cultura es interesante porque estan pasando por un momento de rechazo de la
 [Fuente de información 1](https://repository.ubn.ru.nl/bitstream/handle/2066/145805/mmubn000001_182717151.pdf)
 
 [Fuente de información 2](https://www.ohchr.org/sites/default/files/Documents/Issues/Racism/RES_43_1/NGOsAndOthers/cristosal.pdf)
+
+## Bibligrafia
+
+Lopez, Naama. (2021).  
+ 
+ 
+El primer garífuna hondureño en investigar la autonomía territorial y educativa en la comunidad garífuna de Vallecito [fotografía]. Fotografía de portada: Sandra Fiallos Ruiz. https://contracorriente.red/2021/07/06/el-primer-garifuna-hondureno-en-investigar-la-autonomia-territorial-y-educativa-en-la-comunidad-garifuna-de-vallecito/
+
+Rivas, R. D. (1994). Los antiguos dueños de la tierra: pueblos indígenas y garífuna de Honduras (Doctoral dissertation, [Sl: sn]). (Cap5)
+
+VALENTINI, GIORGIO. (2014). Los garífunas y su papel en el desarrollo de Honduras [imagen]. blogs worldbank, Ubicación. https://blogs.worldbank.org/es/latinamerica/garifunas-en-honduras

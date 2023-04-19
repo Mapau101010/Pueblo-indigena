@@ -1,5 +1,4 @@
-# Pueblo-indigena
-Garifunas de honduras
+
 # **Pueblo indigena**
 
 ## **Garifunas de Honduras**
